@@ -11,7 +11,7 @@ Preparar un autèntic plat calent a casa és molt fàcil gràcies als **fideus o
 ![Imatge d'ous](https://www.granjapinilla.com/wp-content/uploads/2023/05/huevos-productos.png)
 + Ceba tendra
 
-![Imatge cebollino](https://prove.es/wp-content/uploads/2023/09/cebolleta-A4.webp)
+![Imatge cebollino](https://i.blogs.es/1d707a/cebollino1/450_1000.jpg)
 + Formatge Tranchetes o Kraft al gust
 
 ![Imatge de formatge](https://www.provecaex.com/inicio/11547-home_default/quesolonchatranchettespaquete14uds2625gr.jpg)
